@@ -8,3 +8,4 @@ Bevor es endet will ich den kleinen *Strolchen* aus meinem **Volk** noch _etwas_
 3. Lebt jeden Tag
 5. Schlaft ausreichend
 - Ohne Fleiß kein Preis
+[Kollegahs Abschied] (https://www.welt.de/kultur/article253258580/Rapper-beendet-seine-Karriere-Kollegah-Du-wirst-trotz-allem-fehlen.html)
